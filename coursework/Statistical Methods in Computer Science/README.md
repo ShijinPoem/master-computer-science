@@ -1,0 +1,2 @@
+Thứ bảy, ngày 10 tháng 10 năm 2026:
+Thầy Sang thông báo là đã đổi thời gian dạy của môn này thành 9 buổi bắt đầu từ buổi chiều ngày 07 tháng 11 năm 2026, sẽ học vào cả thời gian như thời khoá biểu và vào thời gian của môn xử lý dữ liệu lớn.
