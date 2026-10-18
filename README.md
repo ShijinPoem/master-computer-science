@@ -8,3 +8,6 @@ dd/mm/yyyy
 
 11/10/2026:
 -Sau buổi lễ khai giảng thầy Phạm Thế Bảo gửi quy chuẩn về chương trình đào tạo.
+  
+18/10/2026:  
+-Thầy Nguyễn Tuấn Đăng phổ biến điểm giữa kỳ sẽ là điểm các bài tập.

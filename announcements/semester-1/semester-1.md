@@ -7,3 +7,6 @@ Thứ bảy, ngày 10 tháng 10 năm 2026:
 ++ buổi chiều là từ 13:30 giờ đến 15:00 giờ là kết thúc nội dung 
 thời gian còn lại là tự học và trao đổi thêm nếu cần
 -Thầy Sang gửi link drive tài liệu học: Gửi mọi người tài liệu: https://drive.google.com/drive/folders/1p-Xr_yTyWugmMTcamM_AlbJ9Tso2P_Cm?usp=sharing
+  
+Chủ nhật, ngày 18 tháng 10 năm 2026:  
+- Thầy Nguyễn Tuấn Đăng phổ biến cách tính điểm giữa kỳ sẽ là trung bình điểm của các bài tập mà thầy giao, thầy sẽ bỏ đi một bài điểm thấp nhất của các đợt bài tập.
