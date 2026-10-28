@@ -11,3 +11,6 @@ dd/mm/yyyy
   
 18/10/2026:  
 -Thầy Nguyễn Tuấn Đăng phổ biến điểm giữa kỳ sẽ là điểm các bài tập.
+
+28/10/2026:  
+-Môn triết học được thêm vào, tình trạng thời khoá biểu hiện tại bị trùng nhiều môn, có thể sẽ bị bố trí lại toàn bộ lịch học.
