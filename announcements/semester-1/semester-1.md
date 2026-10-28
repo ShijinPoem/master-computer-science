@@ -10,3 +10,6 @@ thời gian còn lại là tự học và trao đổi thêm nếu cần
   
 Chủ nhật, ngày 18 tháng 10 năm 2026:
 - Thầy Nguyễn Tuấn Đăng phổ biến cách tính điểm giữa kỳ sẽ là trung bình điểm của các bài kiểm tra, thầy sẽ bỏ đi một bài điểm thấp nhất của các đợt kiểm tra.
+
+Thứ tư, ngày 28 tháng 10 năm 2026:  
+- Trường mới thông báo thêm môn triết học vào thời khoá biểu, vào tối thứ năm đồng thời làm xáo trộn hoàn toàn thời khoá biểu hiện hành.
